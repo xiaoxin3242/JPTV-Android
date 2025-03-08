@@ -16,7 +16,7 @@
 
 ### 下载方式
 
-- 主要下载通道：[点击下载]([https://yun.urldwz.com/s/axqs7](https://xn--mnqu41b.cn/jptv.html))
+- 主要下载通道：[点击下载](https://xn--mnqu41b.cn/jptv.html)
 
 ### 节目预约录制
 
@@ -38,7 +38,7 @@ The Japan TV Live Box APP is an application that provides real-time viewing of J
 
 ### Download
 
-- Main Download Channel: [Click to Download]([https://yun.urldwz.com/s/axqs7](https://xn--mnqu41b.cn/jptv.html))
+- Main Download Channel: [Click to Download](https://xn--mnqu41b.cn/jptv.html)
 
 ### Program Reservation Recording
 
@@ -60,7 +60,7 @@ We also offer program reservation recording services. Join our QQ group for more
 
 ### ダウンロード方法
 
-- メインダウンロードチャネル：[ダウンロードする]([https://yun.urldwz.com/s/axqs7](https://xn--mnqu41b.cn/jptv.html))
+- メインダウンロードチャネル：[ダウンロードする](https://xn--mnqu41b.cn/jptv.html)
 
 ### 番組予約録画
 
